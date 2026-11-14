@@ -14,6 +14,11 @@ This portfolio presents four selected case studies, with a focus on the challeng
 
 ## Selected Work
 
+1. [LegalTech Venture Building](https://github.com/flora-builds/legaltech-founder-case-study)
+2. [Fintech Product Marketing](https://github.com/flora-builds/fintech-gtm-case-study)
+3. [Institutional B2B Growth](https://github.com/flora-builds/institutional_B2B)
+4. [Digital Security Market Readiness](https://github.com/flora-builds/deeptech-market-entry-case-study)
+
 ### 01 : Venture Building & Leadership
 **Building and Leading a LegalTech Venture**
 
