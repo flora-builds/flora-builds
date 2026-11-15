@@ -4,6 +4,8 @@
 
 From founding a technology venture to shaping go-to-market strategies, building institutional partnerships and translating complex products into commercial opportunities.
 
+**Contact:** [Email me](mailto:Flora@floraminaire.com) · [LinkedIn](https://www.linkedin.com/in/flora-minaire/)
+
 ## Areas of Expertise
 
 **Marketing & Communications:** Brand positioning, digital marketing, content strategy, public relations, growth and demand generation.
@@ -131,4 +133,14 @@ Selected details have been anonymized to respect confidentiality.
 This portfolio presentation was structured and edited with AI assistance. The underlying experience, responsibilities and factual account were provided and reviewed by me.
 
 **[Connect with me on LinkedIn](https://www.linkedin.com/in/flora-minaire/)**
+
+
+---
+
+## Let's connect
+
+Interested in discussing marketing leadership,
+product strategy or business development opportunities?
+
+**[Get in touch by email](mailto:Flora@flora.minaire.com)**
   
