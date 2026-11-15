@@ -35,9 +35,11 @@ This portfolio presents four selected case studies, with a focus on the challeng
 
 ### About this portfolio
 
-These case studies draw on real professional experience across venture building, product marketing, institutional business development and go-to-market strategy.
+These case studies draw on real professional experience across venture building, product marketing, institutional business development and go-to-market strategy. 
 
 They distinguish completed work from strategic recommendations, exploratory activities and unverified commercial outcomes. Certain company and partner details are anonymized to respect confidentiality.
+
+This portfolio presentation was structured and edited with AI assistance. The underlying experience, responsibilities and factual account were provided and reviewed by me.
 
 **[Connect with me on LinkedIn](https://www.linkedin.com/in/flora-minaire/)**
   
