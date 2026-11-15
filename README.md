@@ -2,7 +2,9 @@
 
 ### Marketing leadership · Product strategy · Business development
 
-From founding a technology venture to shaping go-to-market strategies, building institutional partnerships and translating complex products into commercial opportunities.
+I turn complex products and emerging market opportunities into clear positioning, actionable go-to-market strategies and commercially relevant execution.
+
+My experience spans founding and leading a technology venture, building fintech marketing foundations, developing institutional B2B partnerships and advising early-stage companies on market entry.
 
 **Contact:** [Email me](mailto:Flora@floraminaire.com) · [LinkedIn](https://www.linkedin.com/in/flora-minaire/)
 
